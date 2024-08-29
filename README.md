@@ -5,6 +5,6 @@
 - 📫 How to reach me?  :  subashchhetri946@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: boring, introvert and single.
-- Hobbies : programming, playing badminton and eating 🤣.
+- Hobbies : programming, playing badminton and  🤣.
   
 
